@@ -57,5 +57,4 @@
 ## 🤝 Let's Connect
 
 - 📧 [charuthamurari03@gmail.com](mailto:charuthamurari03@gmail.com)
-- 🔗 [GitHub](https://github.com/charuthamurari)
 - 💼 [LinkedIn](https://www.linkedin.com/in/charuthamurari/)
